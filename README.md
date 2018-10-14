@@ -40,14 +40,25 @@ For a dependable and effective solution to your pest problems at a reasonable co
 Pest Control Edinburgh | Bird Control Edinburgh | Pest Prevention | Bird Netting | Pest Prevention Contracts | Rats | Mice | Ants | Wasps | Cockroaches | Bedbugs | Fleas | Birds | Pigeons | Gulls | Domestic & Commercial | Free Survey Available | 24hr Service
 
 https://plus.google.com/100281313360593907777
+
 https://plus.google.com/117938206755718286006
+
 https://www.facebook.com/JamesBoyleEdinburghPestCo
+
 https://www.facebook.com/EdinburghPestControl
+
 https://twitter.com/EdinburghPestCo
+
 https://www.youtube.com/channel/UCU1p800-YvOTf9pZGweyuPA
+
 https://edinburghpestcontrolco.blogspot.com
+
 https://uk.pinterest.com/edinburghpestcontrolco
+
 https://www.linkedin.com/in/jamesboyleedinburghpestcontrolco
+
 https://www.linkedin.com/company/edinburghpestcontrolco
+
 https://www.linkedin.com/showcase/pestcontroledinburgh
+
 https://www.instagram.com/edinburghpestcontrolco
